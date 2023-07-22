@@ -1,4 +1,4 @@
-Abstract
+**Abstract**
 
 This research project aims to examine the role of land in shaping and developing research libraries in the formation and maintenance of the Canadian state. To do so, I plan to use a qualitative methodology, conducting a broad literature review and historical document analysis. I plan to use the funds from this grant to hire a graduate student assistant to help me gather, review, analyze, and summarize key literature and documents related to the topic of libraries as agents of settler colonialism and capitalism in Canada. After gathering, reviewing, and analyzing this key data, I plan to create a book outline and write 2-3 chapters of the book. This research is significant because it seeks to understand the current problems of librarianship by looking at the origins of the institutions that have made the profession possible. Additionally, the research is unique because it takes a dialectical materialist perspective on the history of the profession whereas the majority of the professional literature is dominated by idealist philosophies of librarianship. 
 
